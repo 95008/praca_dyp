@@ -1,5 +1,7 @@
 # praca_dyplomowa
 
+rkfjff
+
 ## laborki
 
 ### wtorek 22.03 
